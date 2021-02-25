@@ -6,7 +6,7 @@
  * 400 g de água morna
  * 6 g
  * 12 g de sal
- * 50 g de óleo
+ * 50 g de óelo
 
 ### Rendimento
 
